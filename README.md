@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sijonbiswas1@gmail.com**
 
-- ⚡ Fun fact **Fun fact is I am very serious and side by side also funny**
+- ⚡ Fun fact **is I am very serious and side by side also funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
